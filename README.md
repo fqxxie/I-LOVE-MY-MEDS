@@ -4,9 +4,11 @@
 
 - Hi !! so this part is js to show dnis and warnings etc idk... :3
   !! WARNINGS!!
+  
   This user is sensitive torwards:...
   - Aggressive Shouting // close friends are exceptions
   - Insults // Closer friends exceptions...*again*
+
 .* DNIs!
 - 20+ years olds !!
 - proship/darkshippers
