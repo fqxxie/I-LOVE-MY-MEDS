@@ -14,3 +14,5 @@
 - proship/darkshippers
 - creeps
 - z00philes
+
+![Foxie's GitHub stats](https://github-readme-stats.vercel.app/api?username=fqxxie&show_icons=true&theme=transparent)
