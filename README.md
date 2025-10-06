@@ -43,3 +43,10 @@ I'm foxie nice to meet you! but you can call me vanilla or pawz if we're close ^
 - I LOVE MAKING NEW FRIENDS PLZ FRIEND ME!1!1!
 - My time zone is smth like east africa time (yeah i'm african, pls don't make racist jokes abt africa it's not funny -_-)
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ"THIS USER IS OBSSESED WITH BRIGHTEYES!1!1!"
+![image alt](https://github.com/fqxxie/Idk-dude/blob/main/ced00cd95b8a836d893b0e33be7b6c88-removebg-preview.png?raw=true)
+
+# MY SOCIALS !1!1!
+- READ [MY STRAWPAGE](https://foxieskewlsite.straw.page/) If you want tooo :3!
+- Also [my pronouns page :3](https://pronouns.cc/@pawzz) Plz respect my prefrences O_o 
+
